@@ -1,1 +1,1 @@
-# dinbandhupanjyara.github.io
+# techdinbandhupanjyara.github.io
